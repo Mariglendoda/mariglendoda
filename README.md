@@ -2,7 +2,6 @@
 [Linkedin](https://www.linkedin.com/in/mariglen-doda) |
 [Twitter](https://twitter.com/DodaMariglen) |
 [Stackoverflow](https://stackoverflow.com/users/12009833/mariglen-doda) |
-[GitHub](https://github.com/Mariglendoda) |
 [Figma](https://www.figma.com/@mariglen) |
 [Discord](https://discord.gg/KMN3ZjfdWs) |
 [Behance](https://www.behance.net/mariglendoda) |
