@@ -1,6 +1,7 @@
 [Resume]() |
 [Linkedin](https://www.linkedin.com/in/mariglen-doda) |
 [Twitter](https://twitter.com/DodaMariglen) |
+[Skype](https://join.skype.com/invite/mdWoSEAJZdFJ) |
 [Stackoverflow](https://stackoverflow.com/users/12009833/mariglen-doda) |
 [Figma](https://www.figma.com/@mariglen) |
 [Discord](https://discord.gg/KMN3ZjfdWs) |
